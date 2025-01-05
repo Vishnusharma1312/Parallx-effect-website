@@ -1,1 +1,0 @@
-# Parallx-effect-website
